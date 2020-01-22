@@ -1,1 +1,0 @@
-Laurent Aubin - Université Laval
